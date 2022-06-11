@@ -21,3 +21,5 @@ Keluaran hk dan pengeluaran hk malam hari ini masih menjadi satu diantara info y
 <a href="https://totomacau.club/">Data Toto Macau</a>
 <a href="https://syairsdy.net/">syair sdy</a>
 <a href="http://159.223.80.109/">angka keramat</a>
+
+<a href="http://188.166.232.148/">data hk</a>
