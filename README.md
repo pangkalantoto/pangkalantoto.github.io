@@ -29,5 +29,6 @@ Keluaran hk dan pengeluaran hk malam hari ini masih menjadi satu diantara info y
 <a href="http://159.203.25.130/">Data Cambodia</a>
 <a href="http://qprism.com/">Live Draw Sgp</a>
 <a href="http://155.138.143.49/">Live Draw Sdy</a>
+<a href="http://108.160.138.140/">Live Draw China</a>
 
 
